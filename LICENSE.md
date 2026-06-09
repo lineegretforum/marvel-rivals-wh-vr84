@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://lineegretforum.github.io/marvel-rivals-wh-vr84/ ) |
  |---------------------|----------------------:|
 
 
